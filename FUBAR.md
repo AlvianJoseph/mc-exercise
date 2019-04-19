@@ -1,4 +1,6 @@
 
+
 “This is what Bob & Carol did on Bob’s computer when working on the first feature”
 
-Here Ted added some stuffs
+“This is what Bob & Carol did on Bob’s computer when working on the first feature” 
+
