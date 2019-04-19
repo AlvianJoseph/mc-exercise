@@ -13,3 +13,12 @@ hey it's me bob doing a cool thing to the project that definitely won't break an
 hey it's me ted messing things up
 
 new stuff added -Gabe/Carol
+
+Kiki, do you love me? Are you riding?
+Say you'll never ever leave from beside me
+'Cause I want ya, and I need ya
+And I'm down for you always
+KB, do you love me? Are you riding?
+Say you'll never ever leave from beside me
+'Cause I want ya, and I need ya
+And I'm down for you always
